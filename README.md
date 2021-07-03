@@ -1,1 +1,0 @@
-# srmgpacalculator.github.io
